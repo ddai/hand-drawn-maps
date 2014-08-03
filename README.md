@@ -7,6 +7,7 @@ Here's a list of inspiring maps from the masters, and fun hand-drawn map activit
 ##Inspiration: Artists
 * Paula Scher http://www.paulaschermaps.com/  
 * Rebecca Solnit http://www.7x7.com/arts/rebecca-solnits-infinite-city-maps-sf-whole-new-light &   http://rebeccasolnit.net/book/unfathomable-city-a-new-orleans-atlas/  
+* Jenni Sparks' maps of Berlin, London, Paris & NYC are stunning: http://jennisparks.com/
 
 ##Inspiration: Collections & Books
 * From Here to There: A Curious Collection http://www.handmaps.org/book.html
