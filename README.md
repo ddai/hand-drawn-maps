@@ -2,7 +2,7 @@ Hand-drawn Maps
 ===============
 
 Leave the laptops at home because [Maptime SF](http://www.meetup.com/Maptime-SF/) is going analaog - aka it's arts & crafts time!  
-Here's a list of inspiring maps from the masters, and fun hand-drawn map activities for everyone.
+Here's a list of inspiring maps from the masters, and fun hand-drawn map activities to get you started.  Yay!
 
 ##Inspiration: Artists
 * Paula Scher http://www.paulaschermaps.com/  
