@@ -49,12 +49,22 @@ Are you really into [geocaching](https://www.geocaching.com/) or FINDING TREASUR
 5. Trade your treasure map with a fellow Maptimer and go adventuring, yay!
 
 ###03 [Where Do We Go](https://www.youtube.com/watch?v=Yt-KMPvgKPo)
+Did you play lots of [Carmen Sandiego](http://en.wikipedia.org/wiki/Carmen_Sandiego) as a kid, or have you spent hours procrastinating on [Sporcle](http://www.sporcle.com/games/category/geography)?  This activity might be for you... 
 
+1. Pick and print a blank world map in whatever projection you so desire from here: http://www.worldatlas.com/webimage/testmaps/maps.htm.  Or draw one up yourself, whatever you like.
+2. Highlight places you've lived, places you've been, places you'd like to go, etc.
+3. BONUS: Guess where Carmen Sandiego is.
 
-###Cartouches
+###04 Cartouches
 Don't forget to spruce up your map and:
+
+![Map Art Lab #4: Creating Sea Monsters](https://lh3.googleusercontent.com/-FVnS37MHIH0/U127O8Lry0I/AAAAAAAAp6w/0e0t1qcALw8/w500/map-art-lab-4.jpg)
 
 1. Draw a sweet compass rose 
 2. Add a decorative map title 
 3. Adorn your map with sea monsters and the like 
 4. Frame it! 
+
+## Show & Tell!
+
+To come.  Ping me [@danielledai](https://twitter.com/danielledai) so I can collect your/more sweet hand-drawn maps.
