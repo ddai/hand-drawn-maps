@@ -5,17 +5,17 @@ Leave the laptops at home because [Maptime SF](http://www.meetup.com/Maptime-SF/
 Here's a list of inspiring maps from the masters, and fun hand-drawn map activities to get you started.  Yay!
 
 ##Inspiration: Artists
-![Illustrated US Map](http://1.bp.blogspot.com/-fIQYoLGyIEA/UgD1TppwncI/AAAAAAAAMOw/GGtBkcf-qU4/s1600/img_9213.jpg)
+![Illustrated Map of the United States by Aleksandra Mizielińska and Daniel Mizieliński ](http://1.bp.blogspot.com/-fIQYoLGyIEA/UgD1TppwncI/AAAAAAAAMOw/GGtBkcf-qU4/s1600/img_9213.jpg)
+* Aleksandra Mizielińska and Daniel Mizieliński's "highly illustrated maps full of detail and curiosities": http://www.bigpicturepress.net/our-books/maps/
 * Paula Scher's colorful typographic maps: http://www.paulaschermaps.com/  
 * Masako Kubo's illustrated maps: http://www.masakokubo.co.uk/illustration/maps/
 * Rebecca Solnit's lovely "mash-up" maps of SF & New Orleans: http://www.7x7.com/arts/rebecca-solnits-infinite-city-maps-sf-whole-new-light &   http://rebeccasolnit.net/book/unfathomable-city-a-new-orleans-atlas/ 
-* Aleksandra Mizielińska and Daniel Mizieliński's "highly illustrated maps full of detail and curiosities": http://www.bigpicturepress.net/our-books/maps/
 * Jenni Sparks' intricate maps of Berlin, London, NYC & Paris: http://jennisparks.com/BHV-Paris
 * Jao Lauro Fonte's typographical map of London: http://www.laurofonte.com/LONDON-MAP
 * Fuller map of Bristol: http://www.fullermaps.com/
 
 ##Inspiration: Collections & Books
-![Watercolor map from Bicycle Portraits](http://cdn.shopify.com/s/files/1/0235/0657/products/george_tsogoro_map_large.jpg?v=1369412267)
+![Watercolor map from Bicycle Portraits](http://wwwdesignspongecom.c.presscdn.com/wp-content/uploads/2011/11/bicycle_portraits_2.jpg)
 * Watercolor paintings from Bicycle Portraits: http://www.bicycleportraits.co.za/collections/original-watercolor-map-paintings
 * Mapping Manhattan: http://mapyourmemories.tumblr.com/mappingmanhattan
 * From Here to There: A Curious Collection from the Hand Drawn Map Association: http://www.handmaps.org/book.html
