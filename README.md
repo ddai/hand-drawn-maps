@@ -28,7 +28,22 @@ Here's a list of inspiring maps from the masters, and fun hand-drawn map activit
 ##Activities
 Work on a personal project, or pick a couple of activities to do at Maptime!  Be sure to bring your own art supplies, though we'll have some trace paper, pens, and colored pencils available.  Feel free to bring references or things you'd like to trace as well. These activities are inspired in part by [Map Art Lab](http://www.parkablogs.com/content/book-review-map-art-lab-52-exciting-art-explorations-mapmaking-imagination-and-travel).
 
+###Mental Maps & Patterns, Rawr
+![Rachelle Annechino's mental map of SF - aka a DINOSAUR](http://groups.ischool.berkeley.edu/mentalmaps/img/thumb_sketch_ra.jpg)
+I'm a transportation planner/engineer, so I'm always thinking about how one gets from point A to point B.  And I've always wanted to do a mental maps exercise and collect sweet qualitiative data on perceived commutes, so yay!  If you're curious about Mental Maps, a couple folks at Berkeley's I School had a great "[Visualizing Mental Maps of San Francisco](http://groups.ischool.berkeley.edu/mentalmaps/index.html#)" project. 
+
+1. Sketch a map of your neighborhood, and the places you live in and out of
+2. Draw your commute, and the sights along the way.
+3. Draw how you got to Maptime tonight.
+
 ###Bay Area Treasure Map
 
+###[Where Do We Go](https://www.youtube.com/watch?v=Yt-KMPvgKPo)
 
-###
+
+###Cartouches
+Don't forget to spruce up your map and:
+1. Draw a sweet compass rose
+2. Add a decorative map title
+3. Adorn your map with sea monsters and the like
+4. Frame it!
