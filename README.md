@@ -44,14 +44,14 @@ Are you really into [geocaching](https://www.geocaching.com/) or FINDING TREASUR
 
 1. Make a list of your favorite Bay Area "not for tourists super legit" spots or paths.  _For example, I could make a map of legit dim sum spots, or favorite places to bike._
 2. Draw it! Need a base map?  Try [Maps --> Image](http://maps.stamen.com/m2i/#toner-lite/768:512/12/37.8148/-122.3859) from Stamen.
-3. For the spirited folk, crumble up your paper and stain it with tea. More instructions here: http://www.kiwicrate.com/projects/Tea-Stained-Treasure-Maps/752
-4. Adding a pirate ship in the bay is optional.
+3. For the spirited folk, crumble up your paper and stain it with tea. [More instructions here.](http://www.kiwicrate.com/projects/Tea-Stained-Treasure-Maps/752)
+4. Adding a [pirate ship](http://www.marapets.com/pirateship.php) in the bay is optional.
 5. Trade your treasure map with a fellow Maptimer and go adventuring, yay!
 
 ###03 [Where Do We Go](https://www.youtube.com/watch?v=Yt-KMPvgKPo)
 
 
-###04 Cartouches
+###Cartouches
 Don't forget to spruce up your map and:
 
 1. Draw a sweet compass rose 
