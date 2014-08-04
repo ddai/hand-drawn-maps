@@ -5,6 +5,7 @@ Leave the laptops at home because [Maptime SF](http://www.meetup.com/Maptime-SF/
 Here's a list of inspiring maps from the masters, and fun hand-drawn map activities to get you started.  Yay!
 
 ##Inspiration: Artists
+![Illustrated US Map](http://1.bp.blogspot.com/-fIQYoLGyIEA/UgD1TppwncI/AAAAAAAAMOw/GGtBkcf-qU4/s1600/img_9213.jpg)
 * Paula Scher's colorful typographic maps: http://www.paulaschermaps.com/  
 * Masako Kubo's illustrated maps: http://www.masakokubo.co.uk/illustration/maps/
 * Rebecca Solnit's lovely "mash-up" maps of SF & New Orleans: http://www.7x7.com/arts/rebecca-solnits-infinite-city-maps-sf-whole-new-light &   http://rebeccasolnit.net/book/unfathomable-city-a-new-orleans-atlas/ 
