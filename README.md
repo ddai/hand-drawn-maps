@@ -2,6 +2,7 @@ Hand-drawn Maps
 ===============
 
 Leave the laptops at home because [Maptime SF](http://www.meetup.com/Maptime-SF/) is going analog - aka it's arts & crafts time!
+
 Here's a list of inspiring maps from the masters, and fun hand-drawn map activities to get you started.  Yay!
 
 ##Inspiration: Artists
@@ -29,7 +30,7 @@ Here's a list of inspiring maps from the masters, and fun hand-drawn map activit
 Work on a personal project, or pick a couple of activities to do at Maptime!  Be sure to bring your own art supplies, though we'll have some trace paper, pens, and colored pencils available.  Feel free to bring references or things you'd like to trace as well. These activities are inspired in part by [Map Art Lab](http://www.parkablogs.com/content/book-review-map-art-lab-52-exciting-art-explorations-mapmaking-imagination-and-travel).
 
 ###01 Mental Maps & Commute Trips, Rawr
-I'm a transportation planner/engineer, so I'm always thinking about how one gets from point A to point B.  And I've always wanted to do a mental maps exercise and collect sweet qualitiative data on perceived commutes, so yay!  If you're curious about Mental Maps, a couple folks at Berkeley's I School have a great "[Visualizing Mental Maps of San Francisco](http://groups.ischool.berkeley.edu/mentalmaps/index.html#)" project.
+I'm a transportation planner/engineer, so I'm always thinking about how one gets from point A to point B.  And I've always wanted to do a mental maps exercise and collect sweet qualitiative data on perceived commutes, so yay!  If you're curious about Mental Maps, a couple folks at Berkeley's I-School have a great "[Visualizing Mental Maps of San Francisco](http://groups.ischool.berkeley.edu/mentalmaps/index.html#)" project.
 
 ![Rachelle Annechino's mental map of SF - aka a DINOSAUR](http://groups.ischool.berkeley.edu/mentalmaps/img/thumb_sketch_ra.jpg)
 
@@ -51,6 +52,8 @@ Are you really into [geocaching](https://www.geocaching.com/) or FINDING TREASUR
 ###03 [Where Do We Go](https://www.youtube.com/watch?v=Yt-KMPvgKPo)
 Did you play lots of [Carmen Sandiego](http://en.wikipedia.org/wiki/Carmen_Sandiego) as a kid, or have you spent hours procrastinating on [Sporcle](http://www.sporcle.com/games/category/geography)?  This activity might be for you... 
 
+![World Map from DIY Showoff](http://2.bp.blogspot.com/_Fkf6XTKxhKI/TOoGy7TeDPI/AAAAAAAAMcw/2gEMoQZLZ6A/s640/3652.jpg)
+
 1. Pick and print a blank world map in whatever projection you so desire from here: http://www.worldatlas.com/webimage/testmaps/maps.htm.  Or draw one up yourself, whatever you like.
 2. Highlight places you've lived, places you've been, places you'd like to go, etc.
 3. BONUS: Guess where Carmen Sandiego is.
@@ -65,6 +68,6 @@ Don't forget to spruce up your map and:
 3. Adorn your map with sea monsters and the like 
 4. Frame it! 
 
-## Show & Tell!
+## Show & Tell
 
-To come.  Ping me [@danielledai](https://twitter.com/danielledai) so I can collect your/more sweet hand-drawn maps.
+to come.  Ping me [@danielledai](https://twitter.com/danielledai) so I can collect your/more sweet hand-drawn maps.
